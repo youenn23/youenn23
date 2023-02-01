@@ -1,4 +1,4 @@
-- 👋 Hi, I’m youenn, i'm frensh 🇫🇷
+- 👋 Hi, I’m youenn, i'm french 🇫🇷
 - 👀 I’m interested in gaming, and coding
 - 🌱 I’m currently learning python, then i will learn C and machine learning
 - 📫 How to reach me? discord: taapss#4621
